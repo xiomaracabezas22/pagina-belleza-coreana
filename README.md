@@ -1,6 +1,6 @@
 # **pagina belleza coreana **
-![alt text](![33](https://github.com/user-attachments/assets/6f55288b-5da8-4c74-b3d0-8401e0729871)
-)
+![alt text](![33](https://github.com/user-attachments/assets/f9516b14-0e34-480c-8f5a-ce657cc43196)
+
 
 ## segundo encabezado 
 
